@@ -327,4 +327,14 @@ Nutri Nuggets Pasta MFT
 
 ![nutrinuggetpasta_2021-09-08](nutrinuggetpasta_2021-09-08.jpg)
 
+### 2021-09-22
 
+Cucumber Pulao Khichdi MFT 
+
+- On potato, one cucumber, one tomato. 
+- One small glass rice. Soaked. 
+- Chhaunk: One spoon ghee, cumin seeds, rai seeds, heeng. 
+- Cooked with more water. 
+- 4 whistles. Low flame cooking. 
+
+Great taste! 
