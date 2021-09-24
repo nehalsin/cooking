@@ -338,3 +338,18 @@ Cucumber Pulao Khichdi MFT
 - 4 whistles. Low flame cooking. 
 
 Great taste! 
+
+### 2021-09-24
+
+Aloo Turai 
+
+Turai (Ridged Gourd) from [kitchen garden](https://nehalsin.github.io/nehal-wild-kitchen-garden/)! 
+
+- Chhaunk: Mustard oil, cumin seeds, rai seeds, dhaniya seeds, heeng
+- Tomato, onion added. 
+- Potato, Unpeeled Ridged Gourd added. 
+- 5-6 whistles on low flame in pressure cooker. 
+
+Great taste and color! 
+
+![turai20210924](turai20210924.jpg)
