@@ -305,6 +305,9 @@ Lemon pickle MFT
 
 Mixed and bottled in glass jar. 
 
+As on 2021-07-17:
+![lemonpickle2021-07-17](lemonpickle2021-07-17.jpg)
+
 ###  2021-09-03
 
 Raw Bananas Potato (gravy) curry MFT
