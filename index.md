@@ -356,3 +356,15 @@ Turai (Ridged Gourd) from [kitchen garden](https://nehalsin.github.io/nehal-wild
 Great taste and color! 
 
 ![turai20210924](turai20210924.jpg)
+
+### 2021-09-30
+
+Haste Jawein MFT 
+
+- Vermicelli roasted.
+- Chhaunk: Rai
+- Onion, peas added. 
+- Cooked in water with vermicelli. (About 5 minutes)
+- Tomato Ketchup topping
+
+![hastejawein2021-09-30](hastejawein2021-09-30.jpg)
