@@ -344,18 +344,18 @@ Great taste!
 
 ### 2021-09-24
 
-Aloo Turai 
+Aloo Kaddu MFT
 
-Turai (Ridged Gourd) from [kitchen garden](https://nehalsin.github.io/nehal-wild-kitchen-garden/)! 
+Pumpkin from [kitchen garden](https://nehalsin.github.io/nehal-wild-kitchen-garden/)! 
 
 - Chhaunk: Mustard oil, cumin seeds, rai seeds, dhaniya seeds, heeng
 - Tomato, onion added. 
-- Potato, Unpeeled Ridged Gourd added. 
+- Potato, unpeeled pumpkin added. 
 - 5-6 whistles on low flame in pressure cooker. 
 
 Great taste and color! 
 
-![turai20210924](turai20210924.jpg)
+![pumpkin2021-09-24](pumpkin2021-09-24.jpg)
 
 ### 2021-09-30
 
@@ -368,3 +368,9 @@ Haste Jawein MFT
 - Tomato Ketchup topping
 
 ![hastejawein2021-09-30](hastejawein2021-09-30.jpg)
+
+### 2021-10-05
+
+Eggplant Pakoras 
+
+![eggplantpakoras2021-10-05](eggplantpakoras2021-10-05.jpg)
