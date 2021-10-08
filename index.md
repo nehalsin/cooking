@@ -374,3 +374,19 @@ Haste Jawein MFT
 Eggplant Pakoras 
 
 ![eggplantpakoras2021-10-05](eggplantpakoras2021-10-05.jpg)
+
+### 2021-10-08
+
+Aloo lauki kheera MFT 
+
+- Chhaunk: Rai, Heeng, Jeera, Dhaniya, Methi, Tomato, 3 Green chillies (ripened)
+- One cucumber, similar sized bottle guard and one potato for curry
+- 5-6 whistles on low flamed pressure cooker
+
+Great taste! 
+
+![aloolaukikheera-2021-10-08](aloolaukikheera-2021-10-08.jpg)
+
+## Nice Combinations (NC) and Insights
+
+- 2021-10-07: Urad and Yellow Moong NC lentil curry. 
