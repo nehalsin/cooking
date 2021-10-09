@@ -387,6 +387,15 @@ Great taste!
 
 ![aloolaukikheera-2021-10-08](aloolaukikheera-2021-10-08.jpg)
 
+### 2021-10-09
+
+Aloo kheera baingan bhindi MFT dry curry 
+
+- One cucumber, two eggplants, two potatoes, 10-15 lady fingers
+- Chhaunk: Rai, Jeera, Heeng, Dhaniya, Methi, Two Green chillies
+
+![alookheerabainganbhindi2021-10-09](alookheerabainganbhindi2021-10-09.jpg)
+
 ## Nice Combinations (NC) and Insights
 
 - 2021-10-07: Urad and Yellow Moong NC lentil curry. 
