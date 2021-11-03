@@ -346,7 +346,7 @@ Great taste!
 
 Aloo Kaddu MFT
 
-Pumpkin from [kitchen garden](https://nehalsin.github.io/nehal-wild-kitchen-garden/)! 
+Pumpkin from [kitchen garden](https://nehalsin.github.io/naisargik-kitchen-garden-uttarakhand/)! 
 
 - Chhaunk: Mustard oil, cumin seeds, rai seeds, dhaniya seeds, heeng
 - Tomato, onion added. 
