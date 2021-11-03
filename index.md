@@ -447,7 +447,7 @@ Aloo Beans Bhinss MFT
 - One Lotus Stem, Two potatoes, several beans.
 - 5-6 pressure cooker whistles on low flame.
 
-Excellent. Great taste of ginger, chillies with beans. Beans is great for gravy curries. Great discovery. Photograph not clicked. 
+Excellent. Great taste of ginger, chillies with beans. Beans are great for gravy curries. Great discovery. Photograph not clicked. 
 
 
 ## Nice Combinations (NC) and Insights
