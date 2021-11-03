@@ -8,6 +8,8 @@ MFT: Made First Time
 
 ##  2020
 
+<details markdown='1'><summary>Click to expand!</summary>
+
 ###  2020-05-25
 
 Sweet cheela MFT
@@ -160,6 +162,8 @@ MFT
 Boil pasta and wash in cold water. They'll be extra soft. 
 
 A topping of pickle oil after pasta is prepared gives it a tangy twist. 
+
+</details>
 
 ## 2021
 
@@ -395,6 +399,56 @@ Aloo kheera baingan bhindi MFT dry curry
 - Chhaunk: Rai, Jeera, Heeng, Dhaniya, Methi, Two Green chillies
 
 ![alookheerabainganbhindi2021-10-09](alookheerabainganbhindi2021-10-09.jpg)
+
+### 2021-10-23
+
+Potato Water Chestnut Curry MFT 
+
+- Onion, tomatoes, green chillies, ginger gravy prepared. 
+- Chhaunk. 
+- Put boiled, peeled potatoes and water chestnuts in gravy for proper cooking together with all ingredients. 
+
+![potatowaterchestnut2021-10-23](potatowaterchestnut2021-10-23.jpg)
+
+### 2021-10-25
+
+Water chestnut salad MFT
+
+- Boiled water chestnuts and potatoes
+- One Onion, Cucumber 🥒, Tomato
+- Black salt, lemon juice
+
+![waterchestnutsalad2021-10-25](waterchestnutsalad2021-10-25.jpg)
+
+### 2021-10-25
+
+Paneer Beans MFT 
+
+- Gravy. Onions, garlic, tomatoes, green chillies, ginger.
+- Chhaunk. Usual unprocessed spices. 
+- Beans. Cooked without pressure cooker lid. 5 minutes. 
+- 3 pressure cooker low flame whistles with paneer. 
+
+### 2021-10-30
+
+Cabbage Macaroni MFT
+
+- Chhaunk: Rai seeds
+- Vegetables: Onions, Tomatoes, Cabbage 🥬
+
+![cabbage-macaroni-2021-10-30](cabbage-macaroni-2021-10-30.jpg)
+
+### 2021-11-03
+
+Aloo Beans Bhinss MFT
+
+- Gravy paste: Tomatoes, Ginger, Green chillies.
+- Chhaunk: Ghee, Dhaniya seeds, Methi seeds, Heeng, Rai seeds, Cumin seeds.
+- One Lotus Stem, Two potatoes, several beans.
+- 5-6 pressure cooker whistles on low flame.
+
+Excellent. Great taste of ginger, chillies with beans. Beans is great for gravy curries. Great discovery. Photograph not clicked. 
+
 
 ## Nice Combinations (NC) and Insights
 
