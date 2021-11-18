@@ -449,7 +449,30 @@ Aloo Beans Bhinss MFT
 
 Excellent. Great taste of ginger, chillies with beans. Beans are great for gravy curries. Great discovery. Photograph not clicked. 
 
+### 2021-11-12
+
+Seb kaddu aloo sookhi sabzi MFT 
+
+- Chhaunk: Heeng, Dhaniya seeds, Methi seeds, Rai seeds, chopped tomatoes and garlic
+- Three apples (unpeeled), half middle sized pumpkin, one peeled small potato (risk free step) 
+- (Salt, Red chilli, Garam masala, turmeric etc as per taste)
+- One small piece of jaggery. 
+- 6-7 whistles pressure cooked on low flame. 
+
+Photograph not clicked. NC. 
+
+### 2021-11-18
+
+Aloo Palak Apple 🍎 MFT
+
+- Chhaunk: Rai seeds, Jeera seeds, Dhaniya seeds, Mustard oil, Heeng
+- One Tomato, Two onions, Two Apples (unpeeled), Two Potatoes (peeled), Spinach
+- Light spices. 
+- 5-6 whisles on low flamed pressure cooker. 
+
+Great taste added by apples to yield subtle sour taste to semi liquid like curry! Photograph not clicked. 
 
 ## Nice Combinations (NC) and Insights
 
 - 2021-10-07: Urad and Yellow Moong NC lentil curry. 
+- Don't use too much water in makki aata kneading. 
