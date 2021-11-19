@@ -463,7 +463,7 @@ Photograph not clicked. NC.
 
 ### 2021-11-18
 
-Aloo Palak Apple 🍎 MFT
+Aloo Palak Apple 🍏 MFT
 
 - Chhaunk: Rai seeds, Jeera seeds, Dhaniya seeds, Mustard oil, Heeng
 - One Tomato, Two onions, Two Apples (unpeeled), Two Potatoes (peeled), Spinach
