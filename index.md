@@ -472,6 +472,16 @@ Aloo Palak Apple 🍏 MFT
 
 Great taste added by apples to yield subtle sour taste to semi liquid like curry! Photograph not clicked. 
 
+### 2021-12-02
+
+Aloo Lauki Palak MFT 
+
+- Chhaunk: Rai seeds, Jeera seeds, Dhaniya seeds, Methi seeds, Heeng
+- One chopped tomato, two garlic bulbs 
+- Spinach, three potatoes, half bottle guard
+- Light processed spices
+- 8-9 whistles on low flamed pressure cooker
+
 ## Nice Combinations (NC) and Insights
 
 - 2021-10-07: Urad and Yellow Moong NC lentil curry. 
