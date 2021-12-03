@@ -480,6 +480,7 @@ Aloo Lauki Palak MFT
 - One chopped tomato, two garlic bulbs 
 - Spinach, three potatoes, half bottle guard
 - Light processed spices
+- Half glass water
 - 8-9 whistles on low flamed pressure cooker
 
 ## Nice Combinations (NC) and Insights
