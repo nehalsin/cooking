@@ -483,6 +483,12 @@ Aloo Lauki Palak MFT
 - Half glass water
 - 8-9 whistles on low flamed pressure cooker
 
+### 2021-12-04
+
+Desi Chinese aka Javein
+
+![20211204_1](20211204_1.jpg)
+
 ## Nice Combinations (NC) and Insights
 
 - 2021-10-07: Urad and Yellow Moong NC lentil curry. 
