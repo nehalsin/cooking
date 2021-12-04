@@ -485,7 +485,10 @@ Aloo Lauki Palak MFT
 
 ### 2021-12-04
 
-Desi Chinese aka Javein
+Desi Chinese Javein MFT
+
+- Vegetables: Tomato, Onion, Cabbage
+- Soya Sauce, Vinegar used at end. 
 
 ![20211204_1](20211204_1.jpg)
 
